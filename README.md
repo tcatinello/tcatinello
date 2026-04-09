@@ -1,3 +1,3 @@
 # Tomás Catinelo
 
-**Estudiante de Ingenieria Electronica**
+**Estudiante de Ingeniería Electrónica  - UTN FRH**
